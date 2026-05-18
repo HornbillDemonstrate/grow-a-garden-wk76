@@ -1,4 +1,4 @@
-#  
+#  Sem banimento brainrot evolution scripts é o melhor brainrot evolution scripts com teletransporte e atualização automática. Seguro, confiável e otimizado para máximo desempenho.
 
 
 
